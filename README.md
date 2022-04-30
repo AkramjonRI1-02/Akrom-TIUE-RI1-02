@@ -1,1 +1,0 @@
-# Akrom-TIUE-RI1-02
